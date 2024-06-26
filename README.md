@@ -1,1 +1,0 @@
-# dmgurukul.github.io
